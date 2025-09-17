@@ -7,4 +7,6 @@
 - [Cute as all hell cat game](https://www.google.com/search?q=google+doodle+halloween&rlz=1C1GCEA_enUS1179US1180&oq=google+doodle+halloween&gs_lcrp=EgZjaHJvbWUqDQgAEAAYgwEYsQMYgAQyDQgAEAAYgwEYsQMYgAQyBwgBEAAYgAQyBwgCEAAYgAQyBwgDEC4YgAQyBwgEEAAYgAQyBwgFEAAYgAQyBwgGEAAYgAQyBwgHEAAYgAQyBwgIEAAYgAQyBwgJEAAYgATSAQg1MTUxajBqN6gCALACAA&sourceid=chrome&ie=UTF-8)
 - [Popcorn battle royale](https://www.google.com/search?q=google+doodle+popcorn&rlz=1C1GCEA_enUS1179US1180&oq=google+doodle+popcorn&gs_lcrp=EgZjaHJvbWUyDwgAEEUYORiDARixAxiABDIHCAEQABiABDIHCAIQABiABDIHCAMQABiABDIHCAQQABiABDIHCAUQABiABDIHCAYQABiABDIHCAcQABiABDIHCAgQABiABDIHCAkQABiABNIBCDQ1MDNqMGo5qAIAsAIA&sourceid=chrome&ie=UTF-8)
 
-<small> ~***REMINDER THAT THESE GAMES ARE NOT TO BE PLAYED DURING CLASS!!!***~
+~***REMINDER THAT THESE GAMES ARE NOT TO BE PLAYED DURING CLASS!!!***~
+H~2~0
+
